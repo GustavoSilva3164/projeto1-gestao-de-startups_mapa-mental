@@ -1,0 +1,1 @@
+# projeto1-gestao-de-startups_mapa-mental
